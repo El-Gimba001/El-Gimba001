@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @El-Gimba001
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning a computer science student
+- 🌱 I’m currently learning how to do a programming
 - 💞️ I’m looking to collaborate with someone that can help me
 - 📫 How to reach me: via my email address abubakarmuhammadgimba695@gmail.com 
 
